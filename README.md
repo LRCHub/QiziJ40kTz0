@@ -1,0 +1,120 @@
+# Girls' Generation – FOREVER 1
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeong wonhi neowa kkum kkugo
+shipda
+Gibun joheun barameul ttara
+nuni bushin jeoha neurarae
+Areumdaun noraewa joheun
+hyanggiro gadeukhan neowa
+geotneun gil
+Gieokha nicheo eum mannatdeon
+eosaekha go nasseon shigandeul
+Seotulgo eoryeotdeon nal geujeo
+mareobshi jikyeojun nege gomawo
+Jichyeo itdeon gaseumi dashi
+sumshigo
+Ganan haejin ma eumi bicheul
+chajasseo
+Yeong won torogireoh ke neowa
+duriseo kkumeul kkugo shipeo
+Uri dul mane sesange sarang
+haneun nae saramgwa hamkke
+Jjalpji anheun geu shigan
+dongan ijji mothal manheun
+gieok deul
+Useumgwa nunmul soge eonjena
+nal mideojun geon baro
+neoyeosseo
+Jichyeo itdeon gaseumi dashi
+sumshigo
+Ganan haejin ma eumi bicheul
+chajasseo
+Yeong won torogireoh ke neowa
+duriseo kkumeul kkugo shipeo
+Uri dul mane sesange sarang
+haneun nae saramgwa hamkke
+Amudo uril bang hae hajineun
+anha
+Shigane jjotgyeo ya hari yudo
+eobseo
+Uri gakkeum sshigeun, ttaeron
+meolli isseodo, gateun ma
+eumeuro
+Gateun ma eum hanaro gateun
+kkumeul kkulsu itdamyeon
+Aju oraen shigani heullYeong
+wonhi neowa kkum kkugo shipda
+Gibun joheun barameul ttara
+nuni bushin jeoha neurarae
+Areumdaun noraewa joheun
+hyanggiro gadeukhan neowa
+geotneun gil
+Gieokha nicheo eum mannatdeon
+eosaekha go nasseon shigandeul
+Seotulgo eoryeotdeon nal geujeo
+mareobshi jikyeojun nege gomawo
+Jichyeo itdeon gaseumi dashi
+sumshigo
+Ganan haejin ma eumi bicheul
+chajasseo
+Yeong won torogireoh ke neowa
+duriseo kkumeul kkugo shipeo
+Uri dul mane sesange sarang
+haneun nae saramgwa hamkke
+Jjalpji anheun geu shigan
+dongan ijji mothal manheun
+gieok deul
+Useumgwa nunmul soge eonjena
+nal mideojun geon baro
+neoyeosseo
+Jichyeo itdeon gaseumi dashi
+sumshigo
+Ganan haejin ma eumi bicheul
+chajasseo
+Yeong won torogireoh ke neowa
+duriseo kkumeul kkugo shipeo
+Uri dul mane sesange sarang
+haneun nae saramgwa hamkke
+Amudo uril bang hae hajineun
+anha
+Shigane jotgyeo ya hari yudo
+eobseo
+Uri gakkeum shigeun taeron
+meolli iseodo gateun ma eumeuro
+Gateun ma eum hanaro gateun
+kumeul kulsu itdamyeon
+Aju oraen shigani heulleo
+jinaseo aju orae jinaseo
+Neowa naye moseubi jogeum
+dallado jogeum dallado
+Yeong won torogireoh ke neowa
+duriseo kumeul kkugo shipeo
+Naye sowoni dwe eojun naye
+mideumi dwe eojun neowa
+Aju oraen shigani heulleo
+jinaseo oraen shigani heulleoseo
+Neowa naye moseubi jogeum
+dallado jogeumeun dareul jirado
+Yeong won torogireoh ke neowa
+duriseo kumeul kugo shipeo
+Naye gijeogi dwe eojun naye ku
+meulham ke haejun neowa
+Oraen sewori heulleodo yeong
+wonhi neowa kum kkugo shipeo
+A duriseo kumeul kkugo shipeo
+Naye sowoni dwe eojun naye
+mideumi dwe eojun neowa
+Aju oraen shigani heulleo
+jinaseo oraen shigani heulleoseo
+Neowa naye moseubi jogeum
+dallado jogeumeun dareul jirado
+Yeong won torogireoh ke neowa
+duriseo kumeul kugo shipeo
+Naye gijeogi dwe eojun naye kku
+meulham kke haejun neowa
+Oraen sewori heulleodo yeong
+wonhi neowa kum kugo shipeo
+```
